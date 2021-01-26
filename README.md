@@ -1,1 +1,0 @@
-# Stoli-Vodka.Nipponbeer
